@@ -4,3 +4,19 @@ Laboratorio: Documentacion del software
 
 Esta es mi primera practica con GitHub desde GitBash!
 
+Cambios en la segunda rama#2:
+
+..... (¯`v´¯)♥
+
+.......•.¸.•´
+
+....¸.•´
+
+... (
+
+☻/
+
+/▌♥♥
+
+/ \\ ♥♥
+
